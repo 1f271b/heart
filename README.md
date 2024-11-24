@@ -1,1 +1,1 @@
-animation page for a special person 
+animation page for all of my dearest friends 
